@@ -1,1 +1,1 @@
-# Sustainify-compitition
+# Sustainify-competition
